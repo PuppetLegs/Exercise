@@ -1,0 +1,1 @@
+This is a new and glorious sentence for a new and glorious future. Glory to Arstotzka!
