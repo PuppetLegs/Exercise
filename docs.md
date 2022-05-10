@@ -1,3 +1,3 @@
-This manual provides step-by-step instructions on the safe and effective usage of the IronNyest MK 69. 
+This manual provides step-by-step instructions on the safe and effective usage of the RazorNyest MK 69
 
 Note that this device is totally safe for use by children, pets, the elderly, elder gods, and younger gods. 
